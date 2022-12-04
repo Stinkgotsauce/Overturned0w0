@@ -1,6 +1,5 @@
 - im overturned
 - 👀 I’m interested in ... MEN 😍
-- i love men, especially this one person
 - 💞️ I’m looking to collaborate on ... WEINER!
 - 📫 How to reach me ... don't...
 
